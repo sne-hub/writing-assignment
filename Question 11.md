@@ -1,0 +1,3 @@
+Plagiarism is illegal and can have serious consequences, copying from a fellow student or directly from the internet may lead to dismissal from the institution or a disciplinary hearing. It is a self-harming process, doing it over again may lead to dependency. Copying can be addictive in a sense that, if a student has a habit of copying, they might not attempt doing their jobs because they depend on getting answers from their peers or the internet.
+Submitting mediocre exercises and projects wastes the time of the person who is reviewing that project. Taking time and putting in the effort to do your work breeds good results and if you make it your routine to study and understand you will excel in your projects and in the workplace as well.
+
