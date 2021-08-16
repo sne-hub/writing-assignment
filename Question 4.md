@@ -1,0 +1,1 @@
+I do not have much experience; however, I have studied the basics of programming through online platforms and most of them focused more on python, but I am looking forward to learning and perfecting my coding skills

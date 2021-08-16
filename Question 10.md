@@ -1,0 +1,1 @@
+I have applied at different institutions to study web development; however, I have no commitments that might get in a way of my learnership since none of them have responded. I will communicate with Umuzi if I find my-self having other commitments
